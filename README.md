@@ -46,4 +46,9 @@ Here are some ideas to get you started:
 
 -![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) im a freaky freakster...heh...if you're a freaky feakster too.....*blushes*
 
+<img width="1000" height="100" alt="tumblr_81da5b5ce42cbceafcacc68231f3a183_f4de7208_1280" src="https://github.com/user-attachments/assets/442fd43c-bd66-4015-9985-a4628881de9f" />
+
+
+
+
 
