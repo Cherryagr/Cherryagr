@@ -33,4 +33,6 @@ Here are some ideas to get you started:
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
-<p aligh="center"> $\color{#0077b6}{HELLO!!}$ </p>
+<p aligh="center"> $\color{#0077b6}{HELLO!!
+  HERE ARE A FEW THINGS YOU SHOULD KNOW BEFORE YOU INTERACT! }$ </p>
+  
