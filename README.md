@@ -36,9 +36,14 @@ Here are some ideas to get you started:
 <p aligh="center"> A few things you should know before you int</p>
 
 
-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) Sometimes, i might not be in the mood to talk and might eb super dry
-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) if i compliment your pony, PLEASE DONT YAP I'LL KMS
-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) you can C+H but i probably won't let you do that when my friends are online 
-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) I'll unfriend you if were don't really talk to eachother!!
-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) im a freaky freakster...heh...if you're a freaky feakster too.....*blushes*
+-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) Sometimes, i might not be in the mood to talk and might eb super dry
+
+-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) if i compliment your pony, PLEASE DONT YAP I'LL KMS
+
+-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) you can C+H but i probably won't let you do that when my friends are online 
+
+-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) I'll unfriend you if were don't really talk to eachother!!
+
+-![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) im a freaky freakster...heh...if you're a freaky feakster too.....*blushes*
+
 
