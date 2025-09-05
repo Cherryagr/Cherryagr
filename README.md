@@ -14,8 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronounhttps://i.pinimg.com/736x/05/2f/ba/052fba5301f2c1ff7af0f2ce930a344a.jpgs: ...
 - ⚡ Fun fact: ...
 -->
-![<img width="540" height="540" alt="27f9363d505ffa59c8653243a3d969cc-Photoroom" src="https://github.com/user-attachments/assets/441a1107-c0e2-4778-b65f-ef715648df51" />
-052fba5301f2c1ff7af0f2ce930a344a](https://github.com/user-attachments/assets/6b089fce-dd56-4ea4-b25c-461c756c0e80)
+!<img width="480" height="480" alt="485937862-6b089fce-dd56-4ea4-b25c-461c756c0e80-removebg-preview" src="https://github.com/user-attachments/assets/a0ee35a2-739e-4101-9f2f-5b9f8311d8ea" />
 
 ![f782e8b7409521ece32254dc210cb1bc](https://github.com/user-attachments/assets/ebef0c4e-ef7c-43b0-afe3-26f6a167be9d)
 
