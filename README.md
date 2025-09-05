@@ -55,6 +55,7 @@ Here are some ideas to get you started:
 
 <img width="20" height="20" alt="tumblr_8d832cb0dd4d670135682a18f046f048_b28d4238_75" src="https://github.com/user-attachments/assets/79d1d9b8-e1e8-4921-85d8-204caab1edc1" /> don't int if you're a zoophile. i'll block you. 
 
+<img width="20" height="20" alt="tumblr_8d832cb0dd4d670135682a18f046f048_b28d4238_75" src="https://github.com/user-attachments/assets/16360f70-5073-4f3e-b5d4-4538b36d10d9" /> 
 
 
 
