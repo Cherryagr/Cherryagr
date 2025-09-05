@@ -33,4 +33,4 @@ Here are some ideas to get you started:
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
-HELLO! 
+<p aligh="center"> $\color{#0077b6}{HELLO!!}$ </p>
