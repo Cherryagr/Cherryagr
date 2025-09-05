@@ -34,4 +34,7 @@ Here are some ideas to get you started:
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
 <p aligh="center"> A few things you should know before you int</p>
-  
+
+
+![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b)
+
