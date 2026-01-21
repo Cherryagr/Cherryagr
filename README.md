@@ -38,8 +38,6 @@ Here are some ideas to get you started:
 
 -![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) Sometimes, i might not be in the mood to talk and might eb super dry
 
--![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) if i compliment your pony, PLEASE DONT YAP I'LL KMS
-
 -![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) you can C+H but i probably won't let you do that when my friends are online 
 
 -![bow](https://github.com/user-attachments/assets/e05ade05-16f1-420d-8d5e-3b9108ea641b) I'll unfriend you if were don't really talk to eachother!!
