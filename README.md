@@ -29,6 +29,9 @@ Here are some ideas to get you started:
 
 <img width="250" height="250" alt="88d0787a7722dd114cc880e68db488cd-removebg-preview" src="https://github.com/user-attachments/assets/5ee6c5a8-a474-423b-bdb7-88801c8b0a65" />
 
+<img width="653" height="564" alt="image" src="https://github.com/user-attachments/assets/aace3faa-e2c8-4e3b-8b3a-eefc096acf80" />
+
+
 ════════════════════════════════════
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
