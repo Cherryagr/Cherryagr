@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 <img width="1000" height="100" alt="tumblr_6c66337346d7c4092fa36eaeeb754c73_946968fc_1280" src="https://github.com/user-attachments/assets/18c9a60e-16b4-46ee-9149-e60c799fb618" />
 
-<img width="254" height="290" alt="image" src="https://github.com/user-attachments/assets/79a2347d-0b40-4b95-9dcb-0b9ab6867fd0" />
+<img width="234" height="290" alt="image" src="https://github.com/user-attachments/assets/79a2347d-0b40-4b95-9dcb-0b9ab6867fd0" />
 art made by me ^^
 
 ════════════════════════════════════
